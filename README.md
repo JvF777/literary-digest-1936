@@ -1,0 +1,1 @@
+# literary-digest-1936
